@@ -1,0 +1,2 @@
+# gusti-resolusi
+Rencana 
